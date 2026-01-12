@@ -10,6 +10,7 @@
 
 这些事情，腾讯云做得挺好。不浮夸，也不含糊。
 
+<img width="3791" height="1405" alt="image" src="https://github.com/user-attachments/assets/9fe6947a-7fe4-4094-b36f-00d65f64f5fe" />
 
 **腾讯云到底是什么**
 
